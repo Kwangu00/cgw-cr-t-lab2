@@ -1,1 +1,1 @@
-Team lead: Joshua Lubinda.
+Team Leader:
